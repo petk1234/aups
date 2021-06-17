@@ -8,6 +8,3 @@ fdkvkdfvd
 dkvj
 dvkjndfkvdkfjn
 fdvjkdfnjdfknv
-vfkjndkvbdkjfvhb
-dkjfvnkjdvn
-sfff
